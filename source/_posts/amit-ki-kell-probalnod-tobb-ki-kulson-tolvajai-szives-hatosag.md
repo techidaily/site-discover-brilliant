@@ -1,7 +1,7 @@
 ---
 title: Amit Ki Kell Próbálnod? Több Ki Külsön Tolvajai - Szíves Hatóság!
-date: 2025-01-24T17:48:57.988Z
-updated: 2025-01-27T19:34:27.505Z
+date: 2025-02-04T16:33:17.737Z
+updated: 2025-02-09T16:06:41.393Z
 categories:
   - movavi
 thumbnail: https://thmb.techidaily.com/01714150012339f1efdced7e1f734d013877746c193a3029a59cdde359ecf8d8.jpg
@@ -45,6 +45,10 @@ Si vous avez besoin d'un enregistreur de jeu, essayez Gecata by Movavi.
 [Télécharger gratuitement](https://tools.techidaily.com/movavi/products/)
 
 [![](https://cdn.staticont.net/pages/0023/55/8e3299ceec11a282886103c3bfcf9215af3372c3.webp)](https://tools.techidaily.com/movavi/products/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Édité par [Elinor Zucchet](https://tools.techidaily.com/movavi/products/)
 
@@ -152,9 +156,17 @@ Désactivez les services d'arrière-plan pour accélérer votre ordinateur porta
 
 Afficher plus
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Choix spécial : [Gecata by Movavi](https://www.gecata.com/)
 
 ![](https://cdn.staticont.net/pages/0013/24/59bfacce83c98f6e29023d9167e646142e92751a.webp)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 [Télécharger gratuitement](https://tools.techidaily.com/movavi/products/)
 
@@ -222,10 +234,6 @@ Pour vérifier que vous disposez de la dernière version de DirectX, appuyez sur
 
 Si vous n'avez pas DirectX 12, allez-y et installez-le ; le processus ne prendra que quelques minutes. Appuyez sur la   **touche Windows** \+ **I**, choisissez **Mise à jour et sécurité** et cliquez sur **Vérifier les mises à jour** dans l'onglet **Windows. Mise à jour**. Attendez que l'installation se termine.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 
 
 Utiliser le mode de jeu Windows 10
@@ -282,6 +290,10 @@ Par ailleurs, les jeux sur Steam sont mis à jour en permanence et il arrive sou
 
 Pour ramener la version d'un jeu à celle dont vous avez besoin, ouvrez Steam, faites un clic droit sur le jeu, choisissez **Propriétés** et allez dans l'onglet **Bêta**. Choisissez la version souhaitée dans le menu déroulant.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Désactiver les notifications
 
 Les notifications au milieu d'un jeu consomment de la puissance CPU et peuvent nuire à votre champ de vision pendant le jeu. Suivez les étapes suivantes pour désactiver toutes les notifications avant de jouer :
@@ -290,10 +302,6 @@ Les notifications au milieu d'un jeu consomment de la puissance CPU et peuvent n
 2. Tapez "Notifications" dans la barre de recherche et sélectionnez **Notifications et paramètres d'actions** dans les résultats.
 3. Lorsque la nouvelle fenêtre s'ouvre, mettez le commutateur à bascule situé à côté de l'option **Obtenir des notifications d'applications et d'autres expéditeurs** sur **Désactivé**. Vos notifications sont maintenant désactivées.
 4. Vous pouvez également faire défiler la liste et désactiver les notifications par application.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Régler le panneau de contrôle NVIDIA
 
@@ -318,10 +326,6 @@ Les cartes graphiques AMD ont également beaucoup de paramètres. Certains disen
 
 Cette solution entre facilement dans la catégorie des "solutions rapides". Parfois, votre système ne peut tout simplement pas gérer un jeu, et vous n'avez pas le temps de chercher des solutions à plus long terme. Allez dans les paramètres système du jeu et réduisez la résolution d'un niveau. Surveillez ensuite votre FPS jusqu'à ce que les choses s'améliorent.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Désactiver l'accélération de la souris
 
 Celui-ci n'a rien à voir avec l'amélioration des performances de votre PC en matière de jeu, mais il s'agit plutôt d'un conseil pour vous permettre d'améliorer vos performances personnelles en matière de jeu. L'accélération de la souris est un paramètre qui fait bouger votre souris en se basant non seulement sur la détection des mouvements physiques mais aussi sur la vitesse. Cette option rend en fait les mouvements de votre souris moins précis, car elle ajoute un paramètre supplémentaire au mouvement que vous transmettez à la souris. Étant donné que la précision est cruciale pour la précision de la visée dans les jeux de tir à la première personne, si vous êtes un fan de Call of Duty, Counter-Strike ou Overwatch, vous devriez absolument désactiver cette option.
@@ -329,10 +333,6 @@ Celui-ci n'a rien à voir avec l'amélioration des performances de votre PC en m
 Pour ce faire, appuyez sur la   **touche Windows** \+ **I**. Tapez "pointeur de la souris" dans la zone de recherche. Choisissez **Modifier l'affichage ou la vitesse du pointeur de la souris**. Dans la fenêtre qui s'ouvre, allez dans l'onglet **Options du pointeur** et décochez la case **Améliorer la précision du pointeur**.
 
 Vous pouvez également modifier le curseur de la vitesse du pointeur pour créer la configuration qui vous convient le mieux.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 
 
@@ -351,7 +351,7 @@ Passer d'un disque dur à un disque SSD n'améliorera pas radicalement les perfo
 Quant à l'aspect financier, si un gros SSD pour votre système d'exploitation et vos jeux est trop cher pour vous, prenez un petit SSD pour votre système d'exploitation et gardez un gros disque dur pour les jeux.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Mettez à niveau votre GPU/CPU
@@ -363,6 +363,10 @@ Mettez à niveau votre GPU et votre CPU environ tous les quatre ans pour que tou
 Le choix de la première mise à niveau dépend des types de jeux auxquels vous jouez. Si vous n'avez pas besoin de graphismes extrêmes et jouez à des jeux plus rapides, le processeur est le meilleur choix. Mais si vous aimez les histoires numériques ou les jeux basés sur le monde avec beaucoup de personnages et d'arrière-plans non jouables, un GPU pourrait vous être plus utile.
 
 Quoi qu'il en soit, assurez-vous que l'équilibre des performances entre les deux est délicat, car l'un ne fonctionne pas sans l'autre. Vérifiez la mémoire et la bande passante de toute mise à niveau potentielle.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Mettez votre RAM à niveau
 
@@ -416,7 +420,7 @@ C'est l'un des services faciles à désactiver sur Windows 10\. Ces programmes e
 * Cliquez sur **OK**.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 
@@ -426,6 +430,10 @@ Comment accélérer l'exécution des jeux sur un ordinateur portable Windows 10
 ![](https://cdn.staticont.net/pages/0013/24/e045d566ab9cee25f15459463af7614838747945.webp)
 
 Vous voulez savoir comment améliorer les performances de jeu sur un ordinateur portable Windows 10 ? Ces conseils vous aideront à accélérer les choses !
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Utiliser une alimentation externe
 
@@ -443,10 +451,6 @@ Les ordinateurs portables sont réputés pour leur surchauffe, car tous les comp
 2. Pour la ventilation, essayez de surélever votre ordinateur portable ou utilisez un bureau conçu pour les ordinateurs portables.
 3. Réglez les paramètres de vos ventilateurs pour qu'ils ne soient pas trop sollicités.
 4. Si vous le pouvez, jouez sur votre ordinateur portable dans un environnement frais.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Mettez à niveau votre GPU et votre RAM
 
@@ -483,14 +487,6 @@ Logiciel d'enregistrement de jeux et de streaming gratuit et simple
 
 ![Gecata&nbsp;by Movavi](https://cdn.staticont.net/products/0023/55/189f02c8904c7cafef6bd153dc2ff5755f569030.webp)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 
 
 Foire aux questions 
@@ -503,6 +499,10 @@ L'article ci-dessus énumère une série de mesures que vous pouvez prendre pour
 * Modifiez les paramètres de votre carte graphique
 * Mettez à niveau votre GPU et/ou votre CPU
 * Vérifiez les paramètres de performance de votre Windows.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Qu'est-ce qui ralentit mon ordinateur ?
 
@@ -523,10 +523,6 @@ Si vous voulez savoir comment rendre votre ordinateur plus rapide pour jouer, vo
 3. Effectuez un nettoyage du disque et une maintenance du système
 4. Passez en revue votre programme de démarrage et désactivez ceux que vous n'utilisez pas.
 5. Installez de la RAM supplémentaire
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Windows 10 est-il meilleur pour les jeux ?
 
@@ -549,6 +545,10 @@ La baisse du nombre de FPS se produit lorsque votre ordinateur n'a pas la mémoi
 Ce n'est pas parce que vous dépensez de l'argent pour un ordinateur qu'il est équipé du dernier cri. Le matériel est plus important que les autres caractéristiques de conception ou de logiciel. En outre, les jeux vidéo modernes placent toujours la barre plus haut en matière de capacité de performance, ce qui est donc relatif d'un jeu à l'autre.
 
 ![Avez-vous des questions&nbsp;?](https://cdn.staticont.net/global/0023/54/e832fd4fe897893df1de795a67cafcd74a13283a.webp)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Avez-vous des questions ?
 
@@ -585,16 +585,20 @@ En vous inscrivant, vous acceptez de recevoir nos courriels de marketing et acce
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/updated-a-look-into-magix-graphic-designer-for-2024/"><u>[Updated] A Look Into MAGIX Graphic Designer for 2024</u></a></li>
-<li><a href="https://windows11.techidaily.com/enhancing-graphics-with-updated-amd-drivers-windows-edition/"><u>Enhancing Graphics with Updated AMD Drivers, Windows Edition</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/free-entertainment-hubs-to-watch-movies-and-tv-beyond-netflix/"><u>Free Entertainment Hubs to Watch Movies & TV - Beyond Netflix</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-detect-and-remove-spyware-on-vivo-y78-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Remove Spyware on Vivo Y78 5G? | Dr.fone</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-techniques-to-combat-unsteady-shot-dynamics/"><u>In 2024, Techniques to Combat Unsteady Shot Dynamics</u></a></li>
-<li><a href="https://discover-brilliant.techidaily.com/live-streaming-mastery-with-manycam-advanced-features-and-virtual-webcam-solutions/"><u>Live Streaming Mastery with ManyCam: Advanced Features and Virtual Webcam Solutions</u></a></li>
-<li><a href="https://discover-brilliant.techidaily.com/live-streaming-mastery-with-manycam-premium-virtual-webcam-and-recording-app/"><u>Live Streaming Mastery with ManyCam: Premium Virtual Webcam & Recording App</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/mastering-troubleshooting-get-your-sony-wireless-headphones-mic-to-work-again-on-pc-and-laptop-platforms/"><u>Mastering Troubleshooting: Get Your Sony Wireless Headphones' Mic to Work Again on PC and Laptop Platforms</u></a></li>
-<li><a href="https://discover-brilliant.techidaily.com/real-time-broadcasting-with-manycam-top-live-streaming-apps-and-webcam-solutions/"><u>Real-Time Broadcasting with ManyCam: Top Live Streaming Apps and Webcam Solutions</u></a></li>
-<li><a href="https://discover-brilliant.techidaily.com/revolutionize-your-broadcasts-with-manycams-unique-live-cam-filters-and-recording-features/"><u>Revolutionize Your Broadcasts with ManyCam's Unique Live Cam Filters and Recording Features</u></a></li>
-<li><a href="https://discover-brilliant.techidaily.com/stream-with-ease-using-manycam-your-essential-virtual-camera-toolkit/"><u>Stream with Ease Using ManyCam – Your Essential Virtual Camera Toolkit</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-benqs-visionary-approach-to-4k-monitors-unraveled-by-the-bl2711u-review/"><u>[New] 2024 Approved BenQ's Visionary Approach to 4K Monitors, Unraveled by the BL2711U Review</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-top-tier-android-video-and-image-recording-tools-reviewed/"><u>[Updated] Top-Tier Android Video & Image Recording Tools Reviewed</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-guide-to-perfect-images-the-no-money-way/"><u>2024 Approved Guide to Perfect Images The No-Money Way</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/capturing-flash-video-content-across-multiple-platforms-innovative-techniques-unveiled-in-the-2024-edition/"><u>Capturing Flash Video Content Across Multiple Platforms: Innovative Techniques Unveiled in the 2024 Edition</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/create-a-single-gif-for-free-a-step-by-step-guide/"><u>Create a Single GIF for Free: A Step-by-Step Guide</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/curing-mute-mode-effective-solutions-for-cyberpunk-2077-audio-issues-in-windows-10/"><u>Curing Mute Mode: Effective Solutions for Cyberpunk 2077 Audio Issues in Windows 10</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/discreet-recording-of-webex-sessions-across-various-platforms-tips-and-methods/"><u>Discreet Recording of Webex Sessions Across Various Platforms - Tips & Methods</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/download-4k-song-videos-for-free-speedy-and-easy-steps/"><u>Download 4K Song Videos for Free - Speedy and Easy Steps!</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/easy-guide-transferring-your-dvds-onto-a-usb-drive-for-stress-free-viewing/"><u>Easy Guide: Transferring Your DVDs Onto a USB Drive for Stress-Free Viewing</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/effective-techniques-for-reducing-audio-file-size-without-losing-sound-clarity/"><u>Effective Techniques for Reducing Audio File Size Without Losing Sound Clarity</u></a></li>
+<li><a href="https://change-location.techidaily.com/ipogo-will-be-the-new-ispoofer-on-vivo-y78-5g-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Vivo Y78 5G? | Dr.fone</u></a></li>
+<li><a href="https://discover-bytes.techidaily.com/top-strategies-for-restoring-accidentally-deleted-partitions-in-windows-10-and-11/"><u>Top Strategies for Restoring Accidentally Deleted Partitions in Windows 10 & 11</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/unlocking-sound-with-pazera-a-2024-audio-extractor-review/"><u>Unlocking Sound with Pazera A 2024 Audio Extractor Review</u></a></li>
+<li><a href="https://change-location.techidaily.com/why-is-ipogo-not-working-on-samsung-galaxy-z-flip-5-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Samsung Galaxy Z Flip 5? Fixed | Dr.fone</u></a></li>
+<li><a href="https://win-exceptional.techidaily.com/yl-computings-guide-steps-to-remove-unnecessary-programs/"><u>YL Computing's Guide: Steps to Remove Unnecessary Programs</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: PC上でのSkype通話記録・傍受方法
-date: 2025-01-21T17:52:25.292Z
-updated: 2025-01-27T16:03:50.830Z
+date: 2025-02-02T17:45:05.538Z
+updated: 2025-02-09T17:15:19.535Z
 categories:
   - WonderFox
 thumbnail: https://thmb.techidaily.com/6ff66889aaf2236739a2923efe4cfc57f9cd9ea7ad49a91b99fcb2a46f695a7e.jpg
@@ -23,6 +23,10 @@ Convert WMA to MP3
 
 ![Author: Carina](https://www.videoconverterfactory.com/tips/imgs-self/avatar/carina.png) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [Carina](https://tools.techidaily.com/videoconverterfactory/hd-video-converter/)
 
 ![Publish date](https://www.videoconverterfactory.com/tips/imgs-self/date.png)
@@ -38,10 +42,6 @@ Updated on Apr 02, 2024
 * Step 3: Determine a destination folder and start conversion
 
 [![Free download](https://www.videoconverterfactory.com/tips/imgs-self/icon-down.png) Download for Free](https://www.videoconverterfactory.com/dl/tips/hdfree.html?from=convert-wma-to-mp3.html-Top-PC-Banner) [![Free download](https://www.videoconverterfactory.com/tips/imgs-self/icon-down.png) Download for Free](https://www.videoconverterfactory.com/free-hd-video-converter/mobile-checking.html?from=convert-wma-to-mp3.html-Top-PC-Banner) 
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 WMA to MP3 Converter Free
 
@@ -64,10 +64,6 @@ WonderFox Free HD Video Converter Factory offers a simple and free way to conver
 
 [![Free download](https://www.videoconverterfactory.com/tips/imgs-self/icon-down.png) Download for Free](https://www.videoconverterfactory.com/dl/tips/hdfree.html?from=convert-wma-to-mp3.html-PC-Small-Banner) [![Free download](https://www.videoconverterfactory.com/tips/imgs-self/icon-down.png) Download for Free](https://www.videoconverterfactory.com/free-hd-video-converter/mobile-checking.html?from=convert-wma-to-mp3.html-Mobile-Small-Banner) 
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Step 1: Add WMA Files into the Converter
 
 Launch **Free HD Video Converter Factory** after downloading and installing it on your PC. Enter the “**Converter**” module and click on the “**\+ Add Files**” button to import WMA files to the converter. You can also drag the source files and drop them into the blank space.
@@ -77,7 +73,7 @@ Launch **Free HD Video Converter Factory** after downloading and installing it o
 ![Audio Converter WMA to MP3](https://www.videoconverterfactory.com/tips/imgs-self/convert-wma-to-mp3/convert-wma-to-mp3-1-mobi.webp) 
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 2: Select MP3 as the Output Format
@@ -88,6 +84,10 @@ Tips: You can also click on the “**Parameter settings**” button to [change t
 ![Windows Media Audio to MP3](https://www.videoconverterfactory.com/tips/imgs-self/convert-wma-to-mp3/convert-wma-to-mp3-2.webp) 
 
 ![Windows Media Audio to MP3](https://www.videoconverterfactory.com/tips/imgs-self/convert-wma-to-mp3/convert-wma-to-mp3-2-mobi.webp) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Step 3: Convert WMA Files to MP3 Now
 
@@ -113,18 +113,10 @@ Step 3: Click on “**Import Settings**” from the “**Files (General)**” ta
 
 ![Convert WMA to MP3 Mac](https://www.videoconverterfactory.com/tips/imgs-self/convert-wma-to-mp3/convert-wma-to-mp3-4-mobi.webp) 
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 3: Find the files you want to convert in the library. Or you can add the local files to the library by selecting “**File**” > “**Add File**”.  
 Step 4: Select the WMA file, click the “**File**” menu and select “**Convert**” > “**Create MP3 Version**”. Then your WMA files can be converted to MP3.
 
 ![Convert WMA Files to MP3](https://www.videoconverterfactory.com/tips/imgs-self/convert-wma-to-mp3/convert-wma-to-mp3-5.webp) 
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![Convert WMA Files to MP3](https://www.videoconverterfactory.com/tips/imgs-self/convert-wma-to-mp3/convert-wma-to-mp3-5-mobi.webp) 
 
@@ -135,10 +127,6 @@ Another desktop WMA to MP3 free converter is VLC. VLC is an open-source media pl
 ![VLC Convert WMA to MP3](https://www.videoconverterfactory.com/tips/imgs-self/convert-wma-to-mp3/convert-wma-to-mp3-6.webp) 
 
 ![VLC Convert WMA to MP3](https://www.videoconverterfactory.com/tips/imgs-self/convert-wma-to-mp3/convert-wma-to-mp3-6-mobi.webp) 
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step 1: Open VLC media player, go to “**Media**” > “**Convert/Save**” in the menu bar, you can also directly press the shortcut key “**Ctrl+R**”.  
 Step 2: Hit the “**\+ Add**” button to import the WMA files and press the “**Convert/Save**” button below.  
@@ -151,7 +139,15 @@ Don’t want to download any software and want an [online converter](https://too
 
 ![ZamZar WMA to MP3](https://www.videoconverterfactory.com/tips/imgs-self/convert-wma-to-mp3/convert-wma-to-mp3-7.webp) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![ZamZar WMA to MP3](https://www.videoconverterfactory.com/tips/imgs-self/convert-wma-to-mp3/convert-wma-to-mp3-7-mobi.webp) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 How to Convert a WMA File to MP3 with ZamZar:
 
@@ -166,11 +162,11 @@ If the size of your WMA files exceeds the maximum file size of ZamZar, you can a
 
 ![Convert WMA to MP3 Online Free](https://www.videoconverterfactory.com/tips/imgs-self/convert-wma-to-mp3/convert-wma-to-mp3-8.webp) 
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Convert WMA to MP3 Online Free](https://www.videoconverterfactory.com/tips/imgs-self/convert-wma-to-mp3/convert-wma-to-mp3-8-mobi.webp) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The conversion steps are quite easy. Just follow the simple tutorial below:
 
@@ -179,10 +175,6 @@ Step 2: Click “**Select File**” to import WMA videos.
 Step 3: Choose “**MP3**” from the “**Convert to...**” list.  
 Step 4: Hit on “**Convert**” button to start the conversion.  
 Then you can download the converted MP3 files.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## At last...
 
@@ -193,6 +185,10 @@ The five listed methods are all free and easy to handle. Besides WMA to MP3 conv
 ### Q1\. What is WMA and MP3?
 
 WMA and MP3 are two audio file formats. WMA (Windows Media Audio) was developed by Microsoft and is commonly used on Windows-based devices. MP3 is a popular format that is widely used on various devices and platforms with the best compatibility.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Q2\. What is the best free WMA to MP3 converter?
 
@@ -208,10 +204,14 @@ Similar Articles
 
 [![WMA to AAC](https://www.videoconverterfactory.com/tips/imgs-self/convert-wma-to-mp3/convert-wma-to-mp3-sml-1.webp) WMA to AAC](https://tools.techidaily.com/videoconverterfactory/hd-video-converter/) [![Free Convert M4A to MP3](https://www.videoconverterfactory.com/tips/imgs-self/convert-wma-to-mp3/convert-wma-to-mp3-sml-2.webp) Free Convert M4A to MP3](https://tools.techidaily.com/videoconverterfactory/hd-video-converter/) [![5 MP3 Cutters](https://www.videoconverterfactory.com/tips/imgs-self/convert-wma-to-mp3/convert-wma-to-mp3-sml-3.webp) 5 MP3 Cutters](https://tools.techidaily.com/videoconverterfactory/hd-video-converter/) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![WonderFox HD Video Converter Factory Pro](https://www.videoconverterfactory.com/tips/imgs-self/box-hdpro-l.png) 
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Enjoy More Functions with the Pro version of Free HD Video Converter
@@ -230,7 +230,7 @@ WonderFox HD Video Converter Factory Pro
 [![Back to Top](https://www.videoconverterfactory.com/tips/amp-imgs/btt.png "Back to Top")](https://tools.techidaily.com/videoconverterfactory/hd-video-converter/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
@@ -248,18 +248,19 @@ WonderFox HD Video Converter Factory Pro
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-crafting-content-for-staff-recognition-on-vimeo-for-2024/"><u>[New] Crafting Content for Staff Recognition on Vimeo for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-loom-capture-toolkit-essential-screen-casts-tips/"><u>[Updated] Loom Capture Toolkit Essential Screen Casts Tips</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-initial-filming-document-evaluation-guide/"><u>2024 Approved Initial Filming Document Evaluation Guide</u></a></li>
-<li><a href="https://discover-brilliant.techidaily.com/abbyy-speeds-up-fdas-mission-for-enhanced-public-wellness-in-the-usa/"><u>ABBYY Speeds Up FDA's Mission for Enhanced Public Wellness in the USA</u></a></li>
-<li><a href="https://discover-brilliant.techidaily.com/abbyy-welcomes-clayton-c-peddy-in-role-of-chief-information-security-officer/"><u>ABBYY Welcomes Clayton C. Peddy in Role of Chief Information Security Officer</u></a></li>
-<li><a href="https://discover-brilliant.techidaily.com/advanced-automatic-conversion-tracking-the-power-of-cookiebot-solutions/"><u>Advanced Automatic Conversion Tracking: The Power of Cookiebot Solutions</u></a></li>
-<li><a href="https://discover-brilliant.techidaily.com/ameliorez-vos-voyages-avec-la-maitrise-de-lautomatisation-innovante/"><u>Améliorez Vos Voyages Avec La Maîtrise De L'Automatisation Innovante</u></a></li>
-<li><a href="https://discover-brilliant.techidaily.com/automated-user-engagement-enhanced-with-cookiebot-technology/"><u>Automated User Engagement: Enhanced with Cookiebot Technology</u></a></li>
-<li><a href="https://discover-brilliant.techidaily.com/boost-website-analytics-with-advanced-cookiebot-technology/"><u>Boost Website Analytics with Advanced Cookiebot Technology</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-elevate-instagram-presence-with-professional-video-editing-skills/"><u>In 2024, Elevate Instagram Presence with Professional Video Editing Skills</u></a></li>
-<li><a href="https://discover-bytes.techidaily.com/mastering-online-retail-security-with-magento-discover-the-best-practices-and-tips-by-massmail-to-fortify-your-store/"><u>Mastering Online Retail Security with Magento - Discover the Best Practices and Tips by Massmail to Fortify Your Store</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/mastering-the-art-of-selecting-top-online-vhs-image-adjustments/"><u>Mastering the Art of Selecting Top Online VHS Image Adjustments</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/the-foundations-of-a-youtube-venture-a-comprehensive-guide-for-2024/"><u>The Foundations of a YouTube Venture A Comprehensive Guide for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-how-to-use-video-titles-and-youtube-tags-for-more-views-for-2024/"><u>[Updated] How to Use Video Titles and YouTube Tags for More Views for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-your-ultimate-companion-for-mastering-mov-recordings-on-windows-10-for-2024/"><u>[Updated] Your Ultimate Companion for Mastering MOV Recordings on Windows 10 for 2024</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/boosting-web-performance-with-cookiebot-technology/"><u>Boosting Web Performance with Cookiebot Technology</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/boosting-workplace-joy-how-artificial-intelligence-elevates-staff-morale/"><u>Boosting Workplace Joy: How Artificial Intelligence Elevates Staff Morale</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/boosting-your-sites-performance-with-the-advanced-features-of-cookiebot-technology/"><u>Boosting Your Site's Performance with the Advanced Features of Cookiebot Technology</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/cookiebot-driven-insights-enhancing-your-digital-marketing-strategy/"><u>Cookiebot-Driven Insights: Enhancing Your Digital Marketing Strategy</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/cookiebot-driven-solutions-optimized-site-engagement-and-personalization/"><u>Cookiebot-Driven Solutions: Optimized Site Engagement and Personalization</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevate-meta-descriptions-top-template-strategies/"><u>Elevate Meta Descriptions Top Template Strategies</u></a></li>
+<li><a href="https://win-ratings.techidaily.com/enkeltfuld-gaestfrihed-herr-ga-dig-viden-om-at-lytte-til-zoom-moder-uden-modtagelsesforbrug/"><u>Enkeltfuld Gæstfrihed: Her'r Ga' Dig Viden Om At Lytte Til Zoom-Møder Uden Modtagelsesforbrug</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-samsung-galaxy-a15-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Samsung Galaxy A15 4G? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-apple-iphone-15-pro-max-to-windows-10-drfone-by-drfone-ios/"><u>In 2024, How to Mirror Apple iPhone 15 Pro Max to Windows 10? | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-trouble-with-iphone-8-plus-swipe-up-try-these-11-solutions-by-drfone-ios/"><u>In 2024, Trouble with iPhone 8 Plus Swipe-Up? Try These 11 Solutions</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-youtube-kiddie-corner-10-year-old-ryan-hits-millionaire-mark/"><u>In 2024, YouTube Kiddie Corner 10-Year-Old Ryan Hits Millionaire Mark</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/stop-webp-imaging-tailor-chromes-settings-on-windows-devices/"><u>Stop WebP Imaging: Tailor Chrome's Settings on Windows Devices</u></a></li>
 </ul></div>
 
